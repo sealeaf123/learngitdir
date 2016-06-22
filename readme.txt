@@ -1,3 +1,3 @@
-hello everybody~
+hello everybody !
 
-I am glad to meet you.
+I am glad to meet you !
